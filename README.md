@@ -1,5 +1,5 @@
 # 💫 About Me:
-Atualmente trabalho na Dock Tech;<br>Cursando Análise e Desenvolvimento de Sistemas na São Paulo Tech School<br>
+Atualmente trabalho na Indra Group;<br>Cursando Análise e Desenvolvimento de Sistemas na São Paulo Tech School<br>
 
 
 ## 🌐 Socials:
